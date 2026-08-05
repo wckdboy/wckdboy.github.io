@@ -1,4 +1,4 @@
-##### a simple place, messy incoherent thoughts
+##### a simple place, for messy incoherent thoughts
 
 
 
